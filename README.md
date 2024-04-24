@@ -13,7 +13,7 @@
 - Created a professional and personalised cover letter that sets me apart from other candidates.
 
 ### Link to Cover Letter
-[Your Google Docs Cover Letter](https://docs.google.com/document/d/1y8IEIdGteZy6pvSxlu9seMSa0aH2dRqyk2AKd94Q-II/edit?usp=sharing)
+[Your Google Docs Cover Letter](https://docs.google.com/document/d/1y8IEIdGteZy6pvSxlu9seMSa0aH2dRqyk2AKd94Q-II/edit?usp=sharing) 
 
 
 
